@@ -1,4 +1,3 @@
-# meow
-<img width="474" height="474" alt="image" src="https://github.com/user-attachments/assets/5ac819cf-89ee-475f-9f4e-1f279eabe45b" />
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/8e795024-cbce-4eee-bc5f-eebfa76d6e8c" />
 
-I like giyuu alot. .. yeah
+HE SO FAT!!!!
